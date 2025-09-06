@@ -2,5 +2,5 @@
 
 A Pen created on CodePen.
 
-Original URL: [https://codepen.io/Jeevitha-L/pen/gbaZjKp](https://codepen.io/Jeevitha-L/pen/gbaZjKp).
+Original URL: [https://jeevithaaa19.github.io/TNSDC-FWD-DP1/](https://jeevithaaa19.github.io/TNSDC-FWD-DP1/).
 
